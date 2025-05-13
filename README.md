@@ -1,1 +1,0 @@
-# FACE-T-AZ-RBAYCAN-
